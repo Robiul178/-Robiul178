@@ -6,7 +6,6 @@ Hi 👋, I'm Robiul Islam
 
 - 📫 How to reach me **robiulislam.me2022@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
